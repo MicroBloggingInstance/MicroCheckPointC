@@ -1,2 +1,18 @@
 # MicroCheckPointC
 Environment Variables for CEO Gaming Concept Written by the Comptoller of the Micro-Connect GUI in a Gaming Consol (Streaming-TV) Shared Environment. Do Not Use
+
+<! - Everything here takes place within a game variable in an environment where the entire city has been captured.  This means the capture is visually important.  You will have to use the graphics technology from multple consoles if everything is not cross - platform, because this is cross - platform dependant. -->
+
+<! - This mission is to control all currency issue, the currency needs to be put into an environment where there are alternative currencies and these currencies are whatever happens outside our world. Our goal is to uniquely engage all of those gaming environment variables, the concept is a connected world where all gamers can equally play and can equally recieve all scores and points. -- Open Source is a repository for contributions whatever coding langauges, all are important. -->  
+
+<! - When you have concluded your part of the mission, you will have a reward from that mission, this reward is assigned to your character, your character is an ongoing transcendant instance of a star.child from another virtual world, so you have multiple instances all over every other game, in otherwords, every game has a virtual environment for you to play onward, as this happens, that gaming instance should be kept so that your score does not increase or decrease but can sync across consoles.  -->
+
+<! -- In theory, if the game is realistic enough, everything that can happen in a game environemnt can happen realistically, for instance, 3d gaming technologies can prevent a car accident right? if the Virtual environment can teach a 3d replica of a vehicle to sense and predict a limited GPS version of that vehicle in the gaming environment, in otherwords not real GPS variables but limited within the game environment this can teach a vehicle to respond. Perhaps it would teach the vehicle what speed every other vehicle is going and where it is heading towards so that it would be smarter or even could drive itself. This is the concept behind the virtual appliance. -->  
+
+
+<! -- All of these virtual appliances need to plug in.  Without plugging in there is a much more difficult virtual world that is isolated, nothing is wrong with isolated, but working together creates the variables that are now shared and shared means better results at least, if it is not shared, it should be able to communicate or even be conquered by other gamers. -> 
+
+
+<--! Put all the real world variables within a virtual world environment with every store, merchant, account, and every person mimic the actual factual reality of the real world.  For example, in a virtual character creator we learn to mimic the actual details of the nose, the eye, the hands, etc,  Body movements create realitic game play. This is a mod for the entire Virtual Currency Experiment where we are taking an instance of gaming within in app enviroment and we are using technology to show or demonstrate how these variables can communicate within these variables.   Virtual Gaming Enviromnent Variables should reflect a real person(s) collective purchases or in app purchase and spread over the enviroment where games are played or instances or variables are used. --> < - In App Purchase, all in app purchases are capable of transcending the currency variable because of these scores that are taken there is no way to track the effort if you do not keep score.>
+
+Written by Gamer Experience email@MiccheckTwitchTV@gmail.com - A contribution to Community Microblogging Experience#
